@@ -14,7 +14,7 @@
 
 **- How to reach me : with my [instagram](http://www.instagram.com/golnarghaffari20) and [linkedin](http://www.linkedin.com/in/golnar-ghaffari-b370462a9/")**
 
-![1](https://github.com/golnarghaffari/personal-site/assets/155916502/59439d42-e1df-4533-a93f-42aa12c8d275)
-![2](https://github.com/golnarghaffari/personal-site/assets/155916502/357e7993-8638-4f48-8f92-31129d52d486)
+![11](https://github.com/golnarghaffari/my-site/assets/155916502/ea9c1587-687d-42c7-8541-86407439c0b8)
+
 
 
